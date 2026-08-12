@@ -975,6 +975,9 @@ Das ist genau die Art von **30–40-Sekunden-Antwort**, die du für eine mündli
 
 
 
+- https://www.studocu.com/de/search?courseId=135923&institutionId=79
+- 
+
 
 
 
